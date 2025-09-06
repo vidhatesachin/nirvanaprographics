@@ -1,2 +1,0 @@
-# nirvanaprographics
-nirvanaprographics
